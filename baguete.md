@@ -27,3 +27,11 @@ Medidas:
 - Ficelles: 180 grs
 - Baguettes: 350 grs
 
+- Tiempo de coccion
+  panes individuales: 8 -10 minutos
+  Ficelles: 12 minutos
+  Grandes: 15 - 20 minutos
+
+Para ficelles aperitivos: minimo de extras de 30% del peso de la masa, ojala 40% (aceitunas negras, lardon/gruyere, roquefort/nueces, chorizo/gruyere)
+Todas pueden ser congeladas crudas maximo 3 semanas  
+
