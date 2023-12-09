@@ -4,7 +4,7 @@ Ingredientes:
 
 - 1000 gr harina T65/80
 - 18 gr sal
-- 5 g levadura fresca
+- 7 g levadura seca o 16 gr de levadura fresca
 - 650 gr agua
 
 Pan de lenta fermentación, lo que hace que dure mas. Datos: comprar harina en 3 o 5 kg, mejor calidad
